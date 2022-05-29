@@ -1,1 +1,1 @@
-### 👋 Hey, you're looking sharp today!
+### 👋 Hey, you look sharp today!
